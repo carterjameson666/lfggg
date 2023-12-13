@@ -4,3 +4,4 @@ n da trenches
 water
 sade
 draft day
+smart money
