@@ -8,3 +8,4 @@ smart money
 numbers
 f!sh
 ah luv my fam!ly
+hey god
