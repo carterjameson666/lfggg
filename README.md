@@ -10,7 +10,7 @@ f!sh
 ah luv my fam!ly
 hey god
 eyes
-1bcard!
+1bcard! gm gm
 real
 sad
 oboy
